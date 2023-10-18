@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<!--
+Oi meu nome e Fabio Henrique mais conhecido como Fabinho haha, adoro jogar bola todos os dias. gosto muito de passar o dia ativo, sempre fazendo alguma coisa o dia inteiro, gosto bastante de soltar pipa tbm, amo ficar meu tempo junto vom minha vó, meus pais e meus tio. 
 **fabinhohenrique/fabinhohenrique** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
